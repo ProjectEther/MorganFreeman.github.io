@@ -1,3 +1,1 @@
-# UNBLOCKED | Bigfoot9999
-Unblock Any Website without using proxies. Also the website you vist is completely invisible: No browsing history, no restrictions, no teachers watching...
-(Use my proxy https://www.bigfootedu.tk to access any blocked website!)
+Watch Evan Almighty
